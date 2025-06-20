@@ -24,8 +24,6 @@ If ALLAH gives permission we will see how ALLAH gifted earth with abundant, clea
 
 If THE SACRED gives permission get ready to learn after first formula for Electromagnetism (time varying way) another (new) second and third formulas (for space and space-time varying ways) of how to generate Electricity from Magnetism
 
-[https://x.com/TANRININresulu/status/1845345836756062398](https://x.com/TANRININresulu/status/1845345836756062398)
-
 Honourable QURAN 57:25 We sent our messengers supported by clear proofs, and we sent down to them the scripture and the law, that the people may uphold justice. And we sent down the iron, wherein there is strength, and many benefits for the people. All this in order for GOD to distinguish those who would support Him and His messengers, in the unseen. GOD is Powerful, Almighty.
 
 - Comments:<br>
