@@ -91,6 +91,15 @@ Magnets should operate in their temperature operation range. Nitrogen based magn
 
 [Demonstration Of Gravitational Accelerator](https://www.youtube.com/watch?v=aZeQJclDuDE)
 
+Super Conductors By Alternating ElectroMagnetic Waves Can Achieve Same Gravitational Acceleration Affect!
+
+As An Example: "Magnetically Levitated MagLev Train Technology"
+Maglevs Do Not Have Portable Power Source For Flying So Had To Be ~15 cm. Near Ground
+
+On The Other Hand Document Describes New Flying Electromagnetic Accelerator Uses Fusion Battery
+
+---------------------------------
+
 [Behaviour Of Light As Particle Or Wave Depends On Frame Of Reference Of Observer](https://x.com/rainmaker1973/status/2001215777991520728)
 
 Dual Split Experiment Changes Frame Of Reference Of Light So We Can Observe Light As Wave So Us Observer Without Changing Our Looker Frame Of Reference Can Observe Light As Wave Side On Wall  Surface
