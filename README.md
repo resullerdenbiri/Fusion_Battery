@@ -121,3 +121,7 @@ And Wish To Reply This [youtu.be/DHsm-woU-sE?si=6fhUVMGQgCo-R86g](https://youtu.
 _________________________________
 
 Dünya'daki kötülüklerin tek bir nedeni var [7:19](https://acikkuran.com/7/19) cennetliklerin işlemedikleri tek günah: "soy ağacından yemek: soyunu üretmek"
+
+_________________________________
+
+istemeyerek te olsa bu depodakilerin patentini almayı umuyorum: sebepleri çok [biri bu](https://www.youtube.com/shorts/w3cNLq2Zf9g)
