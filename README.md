@@ -117,3 +117,7 @@ Such a Comedy ! [Thing](https://youtube.com/shorts/wNNaXjynrD0?si=ge4lGFwriJczDG
 And Wish To Reply This [youtu.be/DHsm-woU-sE?si=6fhUVMGQgCo-R86g](https://youtu.be/DHsm-woU-sE) Comment Deleter Video Channel From Here In Their Language "Turkish":
 
 "11:50 den sonrası saçmalık 11:21 deki “-mış” nedir? Deney sonuç ortada! He anlayamadıysanız dalga parçacık nasıl oluyor şunu izleyin [x.com/rainmaker1973/status/2001215777991520728](https://x.com/rainmaker1973/status/2001215777991520728?s=46) ışığı dalga yada parçacık gibi görmeniz sizin bakış açınızla ilgili; çift yarık sadece sizin frame of reference ınızı yani bakış açınızı aslında fotonun hareket eksenlerini yer değiştirtiyor ve siz fotona bakamadığınız yanal eksenlerden bakma imkanı ediniyorsunuz yani kazanan izafiyet"
+
+_________________________________
+
+Dünya'daki kötülüklerin tek bir nedeni var [7:19](https://acikkuran.com/7/19) cennetliklerin işlemedikleri tek günah: "soy ağacından yemek: soyunu üretmek"
