@@ -108,6 +108,10 @@ By Dual Split Passing Changing Movement Frame Of Refrence Of Light So Turning Li
 
 People's Brains Is Not Have Enough Processing Speed For Observing Light Behaviour As Wave From Sideways Without Dual Split Experiment Changing Light's Movement Frame Of Reference Into SideWays Of Waves
 
+_________________________________
+
+Such a Comedy ! [Thing](https://youtube.com/shorts/wNNaXjynrD0?si=ge4lGFwriJczDGYH) That Has Called "NONrelativistic Schrodinger Equation" Is "Totally Relativistic" ! As I Explained Above ....
+
 ---------------------------------
 
 And Wish To Reply This [youtu.be/DHsm-woU-sE?si=6fhUVMGQgCo-R86g](https://youtu.be/DHsm-woU-sE) Comment Deleter Video Channel From Here In Their Language "Turkish":
