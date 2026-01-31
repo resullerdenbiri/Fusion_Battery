@@ -123,3 +123,5 @@ _________________________________
 Dünya'daki kötülüklerin tek bir nedeni var [7:19](https://acikkuran.com/7/19) cennetliklerin işlemedikleri tek günah: "soy ağacından yemek: soyunu üretmek"
 
 _________________________________
+
+[Direction For Rotation For Gravitational Accelerator:](https://x.com/PhilosophyOfPhy/status/2017508768251310336)
