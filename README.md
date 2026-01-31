@@ -124,4 +124,4 @@ Dünya'daki kötülüklerin tek bir nedeni var [7:19](https://acikkuran.com/7/19
 
 _________________________________
 
-istemeyerek te olsa bu depodakilerin patentini almayı umuyorum: sebepleri çok [biri bu](https://www.youtube.com/shorts/w3cNLq2Zf9g)
+[Direction For Rotation For Gravitational Accelerator:](https://x.com/PhilosophyOfPhy/status/2017508768251310336)
